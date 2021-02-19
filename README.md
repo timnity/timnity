@@ -1,5 +1,3 @@
-### Timnity
-
 <img align="right" src="https://github-readme-stats.vercel.app/api?username=timnity&show_icons=true&icon_color=0366d6&text_color=24292e&bg_color=ffffff&hide_title=true" />
 
 Hi ~ I'm timnity, now I'm working in a food distribution/trade head enterprise, mainly responsible for agricultural products/food trade, cross-border trade, electronic payment/settlement, inbound live cattle (breeding cattle, beef cattle) related work.
