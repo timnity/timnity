@@ -12,7 +12,7 @@ It is still very interesting and meaningful to deal with various kinds of food e
 
 I very much hope to communicate more with all kinds of: cross-border, trader, amateur and technicaler to collide more sparks.
 
-wlecome to contact me :[E-Mail](mailto:timnity@gmail.com), [Twitter DM](https://twitter.com/timnity).
+Contact me :[E-Mail](mailto:timnity@gmail.com), [Twitter DM](https://twitter.com/timnity).
 
 ---
 
@@ -26,4 +26,4 @@ wlecome to contact me :[E-Mail](mailto:timnity@gmail.com), [Twitter DM](https://
 
 非常希望能跟各路：跨境大佬、贸易大佬、淘客大佬和技术大佬多多交流，碰撞出更多的火花。
 
-可联系我: [E-Mail](mailto:timnity@gmail.com), [Twitter DM](https://twitter.com/timnity).
+Contact me: [E-Mail](mailto:timnity@gmail.com), [Twitter DM](https://twitter.com/timnity).
